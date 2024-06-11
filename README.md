@@ -1,2 +1,2 @@
 # Azad-Love
-Inspiration from Azad Chaiwala Institure
+Inspiration from Azad Chaiwala Institute 
